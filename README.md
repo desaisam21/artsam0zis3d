@@ -1,1 +1,0 @@
-# artsam0zis3d
